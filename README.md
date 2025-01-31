@@ -1,1 +1,1 @@
-amgojh s iasajfdlhsd uasdufh lkdsag a ASHDkl ads sadfg lk ds
+i have updated the code i with we have create a simple app that shoes the data in the app
